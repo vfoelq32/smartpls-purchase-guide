@@ -1,0 +1,1 @@
+# smartpls-purchase-guide
